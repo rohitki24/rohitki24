@@ -1,1 +1,1 @@
--mai madharchod hu mai gandu hu mujh se jhat kuch nhi hota mujhse bara gandu koi aur na nhi hai ha maine nishant ko pasand krta hu 
+
